@@ -9,8 +9,6 @@
 
 - 📫 How to reach me **rauldiogoms@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/rmarqusa/Downloads/CV_-_Raul_Diogo_Marques_Santos.pdf](file:///C:/Users/rmarqusa/Downloads/CV_-_Raul_Diogo_Marques_Santos.pdf)
-
 - ⚡ Fun fact **I like Anime and Games :)**
 
 <h3 align="left">Connect with me:</h3>
