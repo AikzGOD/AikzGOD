@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rauldiogoms@gmail.com**
 
-- 📄 Know about my experiences [https://discordapp.com/channels/@me/809019509641052201/1113062817168363520](file:///C:/Users/rmarqusa/Downloads/CV_-_Raul_Diogo_Marques_Santos.pdf)
+- 📄 Know about my experiences file:///C:/Users/rmarqusa/Downloads/CV_-_Raul_Diogo_Marques_Santos.pdf](file:///C:/Users/rmarqusa/Downloads/CV_-_Raul_Diogo_Marques_Santos.pdf)
 
 - ⚡ Fun fact **I like Anime and Games :)**
 
