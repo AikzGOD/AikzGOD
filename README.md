@@ -5,7 +5,7 @@
 
 - 🔭 I’m currently working on [Bussy](https://github.com/AikzGOD/Bussy)
 
-- 🌱 I’m currently learning **LitElement , Angular , Android**
+- 🌱 I’m currently learning **LitElement , Angular , Android , React**
 
 - 📫 How to reach me **rauldiogoms@gmail.com**
 
